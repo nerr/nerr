@@ -1,1 +1,1 @@
-### Slash / Programer / Freelancer / Craft Beer Brewer / Enlightened Agent / Creative Coder
+### Programer / Freelancer / Craft Beer Brewer / Enlightened Agent / Creative Coder
